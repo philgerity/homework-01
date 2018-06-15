@@ -2,7 +2,7 @@
 
 ## Due Date
 
-TBD
+Tuesday, June 5, 2018 @ 4:00 PM
 
 ## Goals
 
